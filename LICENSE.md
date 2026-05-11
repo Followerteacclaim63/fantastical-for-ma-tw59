@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Fantastical for macOS script with best Script for Fantastical for macOS - version history and export to PDF. Featuring version history and export to PDF, it's the
 
 
 
